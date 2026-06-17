@@ -6,7 +6,7 @@ Hey KantaMizuma!
 
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
 
-I'm tired..........................
+I'm tired.........
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
